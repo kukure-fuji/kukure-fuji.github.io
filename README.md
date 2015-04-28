@@ -1,0 +1,1 @@
+# kukure-fuji.github.io
